@@ -2,7 +2,7 @@
 - 👀 I’m interested in drugs and pornography
 - 🌱 I’m currently learning how to get drugged
 - 💞️ I’m looking to collaborate on a porn study
-- 📫 How to reach me drug
+- 📫 How to reach me to be a pornography star
 
 <!---
 Alejo15k20/Alejo15k20 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
